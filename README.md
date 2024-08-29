@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects: **At My-Projects Repository.**
 
-- 📫 Here is my E-Mail: **cbkukadiya26@gmail.com**
+- 📫 Here is my E-Mail: **kchintan2604@gmail.com**
 
 - ⚡ About me: **I like to learn new things and make new friends :)**
 
